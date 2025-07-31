@@ -5,7 +5,7 @@ Trong hệ thống tử vi đẩu số, ngoài cung Mệnh thì cung Thân cũng
 
 **Cung Thân là cung gì trong tử vi?**
 -------------------------------------
-Bạn có biết lá số tử vi chỉ thật sự đầy đủ khi được an sao Lưu theo từng năm? Khám phá ngay những bí mật ẩn sau từng vận hạn tại: https://my.omsystem.com/members/banhboo
+
 
 Cung Thân là một trong hai trục nền tảng trong tử vi đẩu số, cùng với cung Mệnh tạo thành trục Mệnh – Thân, đại diện cho con người ở cả hai khía cạnh: bản chất và biểu hiện. Nếu cung Mệnh thể hiện tính khí, tiềm năng và nhân cách gốc rễ thì cung Thân cho thấy cách con người hành động, thích nghi và phát triển trong đời sống thực tế. Do đó, Thân phản ánh rất rõ về phương diện công danh, sự nghiệp, cách đối nhân xử thế và cả phong cách sống.
 
@@ -45,6 +45,7 @@ Mỗi vị trí của Thân không mang ý nghĩa tốt hay xấu tuyệt đối
 Khi bước vào các đại vận hoặc tiểu vận, nếu vận đó chiếu vào cung Thân, thì ảnh hưởng sẽ thấy rõ trong hành động, sự kiện thực tế. Ví dụ, một người đang ở đại vận có Hóa Khoa chiếu về cung Thân, thì dễ được quý nhân giúp đỡ, được công nhận trong sự nghiệp. Nếu đại vận có Hóa Kỵ hoặc Địa Kiếp chiếu về Thân, thì dễ gặp phiền toái liên quan đến công việc, kiện tụng, hoặc bị hiểu nhầm.
 
 Cung Thân mạnh có thể “kéo” cung Mệnh yếu đi lên, giúp cuộc sống trở nên dễ dàng hơn. Ngược lại, Mệnh tốt nhưng Thân yếu thì thành quả thường đến chậm, ít được công nhận. Vì vậy, người luận tử vi không thể bỏ qua cung Thân nếu muốn có cái nhìn toàn diện và chính xác.
+Bạn có biết lá số tử vi chỉ thật sự đầy đủ khi được an sao Lưu theo từng năm? Khám phá ngay những bí mật ẩn sau từng vận hạn tại: https://my.omsystem.com/members/banhboo
 
 **Luận giải cung Thân chính xác tại Tracuutuvi.com**
 ----------------------------------------------------
